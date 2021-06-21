@@ -19,5 +19,5 @@ Dúvidas e críticas.
 4. Montando o Quebra-Cabeça do Entendimento
 Contruir menomônica artificiais.
    
-
+### Seção 3: Anotações
 
