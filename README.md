@@ -97,3 +97,5 @@ Não podemos buscar informação com qualquer professor devemos prezar pela **di
 > 📋 Registrar quem eu sigo como referência.
 
 > 🫷🏽Auto-podcacst🫸🏽 🎙️
+
+![](https://udemy-certificate.s3.amazonaws.com/image/UC-199cbe6b-9c21-4b60-83d7-eda4536e6b93.jpg?v=1696096443000)
